@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Muhammad Zhafran Mufadhdhol
 
-NIM : 
+NIM : 607062430006
 
 ## Instruksi
 
